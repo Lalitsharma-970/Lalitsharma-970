@@ -1,6 +1,6 @@
 # 👨‍💻 Lalit Sharma
 
-**System Administrator Engineer | IT Infrastructure & Support | Cloud & Security Enthusiast** 🚀  
+**System Administrator Engineer | IT Infrastructure & Opration | Cloud & Security Enthusiast** 🚀  
 
 📧 slalit970@gmail.com  
 
